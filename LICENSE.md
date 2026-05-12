@@ -1,4 +1,4 @@
-#  
+#  elite survive lava for brainrots Scripts is the best survive lava for brainrots Script, featuring no cooldown and no clip. Safe and powerful for all
 
 
 
